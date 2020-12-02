@@ -1,1 +1,0 @@
-# atomgameryt1.github.io
